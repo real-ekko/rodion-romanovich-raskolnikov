@@ -1,4 +1,6 @@
-![alt text](https://64.media.tumblr.com/0d171981ea7b751f78c0523679e4c30e/b92fce7d33790ebc-73/s1280x1920/8a6b10021bc51dd38f2851fe758a450b1f3a583c.gifv) 
 
-![alt text](https://64.media.tumblr.com/ac55d9ac6337e4325f105500b4513246/332f47b0285d6588-f5/s250x400/1a284bb9c13fef1fc641a1157bbd2ec6f69434a0.gifv) i lov dostovesky's books smch what
+
+![alt text](https://64.media.tumblr.com/a5b73526d941a037aebad43fdb7a01dc/dfdab4f0601f69b5-44/s250x400/c37d1baba42228ac3cd7f801852d15fb972ec5fd.pnj) 
+i lov dostovesky's books smch what
+![alt text](https://64.media.tumblr.com/ca1c657d7b48030bd3312e9cd2a8dfd6/dfdab4f0601f69b5-39/s250x400/2a73e1d261cc352e6f61828cabc58712ee7c8222.pnj)
 
